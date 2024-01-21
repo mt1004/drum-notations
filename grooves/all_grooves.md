@@ -3,7 +3,7 @@
 
 [GrooveScribe](https://gscribe.com/share/5sMh4AnBwCWgnzsN9)
 
-[IG Video]()
+[IG Video](https://www.instagram.com/p/C2X4XurREDn/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
 
 
 
