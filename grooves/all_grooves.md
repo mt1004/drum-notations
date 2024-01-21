@@ -1,3 +1,12 @@
+## Imagine Dragons - No Time For Toxic People
+![img](<../png/No Time For Toxic People by Imagine Dragons.png>)
+
+[GrooveScribe](https://gscribe.com/share/5sMh4AnBwCWgnzsN9)
+
+[IG Video]()
+
+
+
 ## Portugal. The Man - Dummy
 ![img](<../png/Dummy By Portugal. The Man.png>)
 
