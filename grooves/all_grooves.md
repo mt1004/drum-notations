@@ -4,7 +4,9 @@
 ![img](<../png/Still Into You Verse Groove Variation 2.PNG>)
 
 [GrooveScribe Main Verse](https://gscribe.com/share/ir2Rz8VLedkTh4Kx8)
+
 [GrooveScribe Verse Variation](https://gscribe.com/share/TLj8MiNPUsyMc4KH8)
+
 [GrooveScribe Verse Variation 2](https://gscribe.com/share/BNK8q4FPibxwgoJcA)
 
 
