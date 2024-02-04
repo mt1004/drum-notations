@@ -1,3 +1,13 @@
+## Paramore - Still Into You
+![img](<../png/Still Into You Verse Groovepng.png>)
+![img](<../png/Still Into You Verse Groove Variation.PNG>)
+![img](<../png/Still Into You Verse Groove Variation 2.PNG>)
+
+[GrooveScribe Main Verse](https://gscribe.com/share/ir2Rz8VLedkTh4Kx8)
+[GrooveScribe Verse Variation](https://gscribe.com/share/TLj8MiNPUsyMc4KH8)
+[GrooveScribe Verse Variation 2](https://gscribe.com/share/BNK8q4FPibxwgoJcA)
+
+
 ## Imagine Dragons - No Time For Toxic People
 ![img](<../png/No Time For Toxic People by Imagine Dragons.png>)
 
