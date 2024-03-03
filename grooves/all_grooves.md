@@ -1,3 +1,12 @@
+## Fountains of Wayne - Stacy's Mom
+![img](<../png/Stacy Mom Verse Groove 1.PNG>)
+![img](<../png/Stacy Mom Verse Groove 2.PNG>)
+
+[GrooveScribe Groove Verse](https://gscribe.com/share/YK9PwPDytHziuAgQ7)
+
+[GrooveScribe Groove Verse 2](https://gscribe.com/share/hUXT4C9axczHU9Np6)
+
+
 ## Paramore - Still Into You
 ![img](<../png/Still Into You Verse Groovepng.png>)
 ![img](<../png/Still Into You Verse Groove Variation.PNG>)
